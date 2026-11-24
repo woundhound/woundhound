@@ -1,6 +1,6 @@
 hi I'm too lazy to make a strawpage . boundary stuff:
 
-- C+H is usually fine, but I usually prefer not being kissed! (some exceptions if we're close or if it's funny.) dw if you do it on accident but if I ask you to stop and then you don't then I'm going to block you #lol
+- C+H is usually fine, but Do Not Kiss Me! (exceptions sometimes made for close friends or if it's funny.) dw if you do it on accident but if I ask you to stop and then you don't then I'm going to block you #lol
 
 - I'm socially bad so I don't talk a whole lot + may leave abruptly
 
