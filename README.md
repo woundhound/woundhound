@@ -6,9 +6,9 @@
 
 ## - I block n hide p easily, nothin personal!!
 
-## - my only hard DNI is radfems / TERFs whatever .. I've seen a few too many of them on Pony Town and I cannot fathom why
+- my only hard DNI is radfems / TERFs whatever .. I've seen a few too many of them on Pony Town and I cannot fathom why
 
-## in terms of interests I like Umineko (only just started answer arcs tho) and Hundred Line and adjacent things idk :]
+in terms of interests I like Umineko (only just started answer arcs tho) and Hundred Line and adjacent things idk :]
 
 <!--
 **woundhound/woundhound** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
