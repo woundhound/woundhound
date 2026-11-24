@@ -4,7 +4,7 @@ hi I'm too lazy to make a strawpage . boundary stuff:
 
 - I'm socially bad so I don't talk a whole lot + may leave abruptly
 
-- I block n hide p easily, nothin personal!!
+- I block n hide p easily tbh, nothin personal!!
 
 - my only hard DNI is radfems / TERFs whatever .. I've seen a few too many of them on Pony Town and I cannot fathom why
 
